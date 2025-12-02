@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Pitchuka Syamala  
+# 👋 Hi, I'm Pitchuka Syamala 
 
 🎓 Final Year CSE Student at Seshadri Rao Gudlavalleru Engineering College (JNTUK)  
 
